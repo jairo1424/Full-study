@@ -1,0 +1,2 @@
+# Full-study
+aprendizaje constante
